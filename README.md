@@ -1,0 +1,3 @@
+Repositorio de ElArtista50, pero bueno mi nombre es Juan Ramon, y me paso el dia iniciando proyectos frikis con tal de aprender cosas nuevas...
+
+
